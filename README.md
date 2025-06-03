@@ -1,0 +1,1 @@
+# Silnik-Baskara-Ko-o-Baskara
